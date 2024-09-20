@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yafi2806
+- 👋 Hi, I’m @yafikorn
 - 👀 I’m interested in Technology, Music, and Movie
 - 🌱 I’m currently learning Tech ofc
 - 💞️ I’m looking to collaborate on ...
